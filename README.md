@@ -68,7 +68,7 @@ Here are a few projects that I’ve worked on:
 - **Telugu**
 
 ## 📞 Contact Me
-- Email: [kadariraviteja9849898363@gmail.com](mailto:kadariraviteja9849898363@gmail.com)
+- Email: [kadariraviteja9849898363@gmail.com](mailto:ravitejakadari26@gmail.com)
 - LinkedIn: [Raviteja Kadari](https://www.linkedin.com/in/raviteja-kadari-20467326a)
 
 ## 💬 Let's Connect!
